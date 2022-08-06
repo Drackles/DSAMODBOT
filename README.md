@@ -1,0 +1,2 @@
+# DSAMODBOT
+DSAMODBOT Discord server
